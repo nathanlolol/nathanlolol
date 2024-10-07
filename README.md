@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @nathanlolol
-- 👀 I’m interested in nicole villaraiz mrleu
+- 👀 I’m interested in nicole
 - 🌱 I’m currently learning ... how to make a tikka masala
 - 💞️ I’m looking to collaborate with ksi ( i love his music )
 - 📫 How to reach me ... follow me on instagram @ishowspeed
